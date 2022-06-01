@@ -2,7 +2,7 @@
 - 👀 I’m interested in gamedev and your mom
 - 🌱 I’m currently learning C# and Unity
 - 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me: /sikvoyo#7032 - Discord. @sikvoyo - Instagram
+- 📫 How to reach me: please don't
 
 <!---
 Sikvoyo/Sikvoyo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
