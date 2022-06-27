@@ -25,4 +25,4 @@ Unfortunately, I don't have anything to share right now
 
 # Discord
 
-(᲼᲼᲼#1405) *i have invisible name, so copy what's inside brackets*
+sikvoyø#1405
