@@ -2,4 +2,4 @@
 
 # WEBSITE
 
-https://sikvoyo.netlify.app
+https://sikvoyo.fun
